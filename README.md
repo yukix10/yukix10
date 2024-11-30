@@ -1,0 +1,6 @@
+- 👋 Hi, I’m Ionela Voinea
+- 📫 How to reach me ionelavoinea.vi.10@gmail.com
+- 🌱 I’m currently learning Java, C++ and C.
+- 👩‍🎓 Bachelor's degree in Food Engineering at Transilvania University of Brasov
+- 👩‍🎓 I am currently studying Computer Science at Transilvania University of Brasov .
+- ⚡ Hobby:🎮, 📱,📖,🎨,🎸🎤
